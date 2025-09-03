@@ -1,0 +1,1 @@
+# Politica-de-Privacidade-do-Aplicativo-Limpador-de-Alto-Falante
